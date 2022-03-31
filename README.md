@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @linhnguyen87
+- 👀 I’m interested in reading and travelling
+- 🌱 I’m currently learning pathway in order to attending to a Finnish university
+- 💞️ I’m looking to collaborate on computer science
+- 📫 How to reach me: you can reach me at: ntylpht@gmail.com
